@@ -1,1 +1,1 @@
-# teeavoro.github.io
+# teeavoro.com
